@@ -9,3 +9,5 @@ Here are some ideas to get you started:
 - ♧ _amo verde_ 💚
 - □ _ela/dela
 - ○ _fun fact: depois da meia noite eu salvo a cidade...sou o Batman!
+
+🦇⭐💖✨
