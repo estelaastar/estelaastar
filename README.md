@@ -12,4 +12,6 @@ Here are some ideas to get you started:
 
 🦇⭐💖✨
 
+ENTRE EM CONTATO COMIGO: estela.casagrande.oliveira@escola.pr.gov.br
+
 ![](https://media.tenor.com/JP12JTgLepcAAAAi/test.gif)
